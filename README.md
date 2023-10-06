@@ -1,1 +1,1 @@
-https://chrome.google.com/webstore/detail/fiery-horse-chrome-theme/hggenoloilhpmdeebjmodjmhfomddgda
+https://lh3.googleusercontent.com/D8wSF3eZNXcwG_cR65mffFjZE2mivCr6daXZ8V-nCWvL8lZFH_WEva5Wg4gosOrRIxujzU2MpZB50RKthWx8bABAtQ=w640-h400-e365-rj-sc0x00ffffff
